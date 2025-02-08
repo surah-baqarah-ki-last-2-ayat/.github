@@ -7,7 +7,7 @@ Surah Al-Baqarah, the second and longest chapter of the Quran, holds immense sig
 These verses encapsulate core Islamic beliefs: the acceptance of Allah's decree, reliance on Him, and the belief in the prophets and revealed scriptures. They are a powerful supplication (dua) for forgiveness, mercy, and strength in faith. Reciting them is believed to bring numerous blessings and protection from harm.
 
 
-[surah baqarah ki last 2 ayat with urdu translation and English](https://surahyasin.org/surah-baqarah-ki-last-2-ayat-with-urdu-translation/)
+[surah baqarah ki last 2 ayat with urdu translation and English](https://baqarahsurah.com/surah-baqarah-ki-last-2-ayat-with-urdu-translation/)
 
 **The Arabic Text, Urdu & English Translation:**
 
