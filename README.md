@@ -1,4 +1,4 @@
-## surah baqarah ki last 2 ayat with urdu translation##
+## surah baqarah ki last 2 ayat with urdu translation
 
 Surah Al-Baqarah, the second and longest chapter of the Quran, holds immense significance for Muslims. Its concluding verses, often recited together, are particularly powerful, offering comfort, protection, and a profound connection with Allah. This article delves deep into these last two ayat (verses), providing the full Arabic text, Urdu and English translations, and insightful commentary to enhance your understanding and appreciation.
 
@@ -42,7 +42,6 @@ Here, we present the last two verses of Surah Al-Baqarah with their Urdu and Eng
 
 Numerous hadith highlight the virtues of reciting these verses. They are said to be a protection against evil, a source of blessings, and a means of attaining Allah's mercy. Regular recitation strengthens one's faith and connection with the Divine.
 
-[surah baqarah ki last 3 ayat with urdu translation](https://surahyasin.org/surah-baqarah-last-3-ayat-with-urdu-translation/)
 
 **FAQs:**
 
