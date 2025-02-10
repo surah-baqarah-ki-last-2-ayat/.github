@@ -1,4 +1,4 @@
-## surah baqarah ki last 2 ayat with urdu translation
+## surah baqarah ki last 2 ayat with urdu translation##
 
 Surah Al-Baqarah, the second and longest chapter of the Quran, holds immense significance for Muslims. Its concluding verses, often recited together, are particularly powerful, offering comfort, protection, and a profound connection with Allah. This article delves deep into these last two ayat (verses), providing the full Arabic text, Urdu and English translations, and insightful commentary to enhance your understanding and appreciation.
 
@@ -15,7 +15,8 @@ Here, we present the last two verses of Surah Al-Baqarah with their Urdu and Eng
 
 **Verse 285:**
 
-*   **Arabic:** آمَنَ الرَّسُولُ بِمَا أُنزِلَ إِلَيْهِ مِن رَّبِّهِ وَالْمُؤْمِنُونَ ۚ كُلٌّ آمَنَ بِاللَّهِ وَمَلَائِكَتِهِ وَكُتُبِهِ وَرُسُلِهِ لَا نُفَرِّقُ بَيْنَ أَحَدٍ مِّن رُّسُلِهِ ۚ وَقَالُوا سَمِعْنَا وَأَطَعْنَا ۖ غُفْرَانَكَ رَبَّنَا وَإِلَيْكَ الْمَصِيرُ
+*   **Arabic:**
+*    آمَنَ الرَّسُولُ بِمَا أُنزِلَ إِلَيْهِ مِن رَّبِّهِ وَالْمُؤْمِنُونَ ۚ كُلٌّ آمَنَ بِاللَّهِ وَمَلَائِكَتِهِ وَكُتُبِهِ وَرُسُلِهِ لَا نُفَرِّقُ بَيْنَ أَحَدٍ مِّن رُّسُلِهِ ۚ وَقَالُوا سَمِعْنَا وَأَطَعْنَا ۖ غُفْرَانَكَ رَبَّنَا وَإِلَيْكَ الْمَصِيرُ
 *   **Urdu Translation:** رسول ایمان لایا اس چیز پر جو اس کے رب کی طرف سے اس پر نازل کی گئی اور مومن بھی۔ سب ایمان لائے اللہ پر اور اس کے فرشتوں پر اور اس کی کتابوں پر اور اس کے رسولوں پر۔ ہم اس کے رسولوں میں سے کسی میں فرق نہیں کرتے اور انہوں نے کہا ہم نے سنا اور اطاعت کی۔ اے ہمارے رب! ہم تیری بخشش چاہتے ہیں اور تیری ہی طرف لوٹنا ہے۔
 *   **English Translation:** The Messenger has believed in what has been revealed to him from his Lord, and [so have] the believers. All of them have believed in Allah and His angels and His books and His messengers, [saying], "We make no distinction between any of His messengers." And they say, "We hear and we obey. [We seek] Your forgiveness, our Lord, and to You is the return."
 
